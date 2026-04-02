@@ -7,7 +7,9 @@
 
 ততততততততততত
 
- 　 　please int with me if u have jjk hyperfix
+please int 　 　with me 　 　 if u into in jjk
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ sign my ata and check strawpage
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinsatorukisser.straw.page)
 
