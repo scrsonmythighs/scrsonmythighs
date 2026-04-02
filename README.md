@@ -1,5 +1,11 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤHAIII THERE                                                                        
-                                   check my strawpage and sign ata pleaseww                                                                                      
-                           PLEASE int w me if u have jjk hyperfix
-                           
-![Image](https://github.com/user-attachments/assets/bc5b2c04-29c6-47d7-b833-d23628e5406c)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　૮₍ ˃̵͈ . ˂̵͈ ₎ა
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<i>c+h always ,, mostly offtab so w2i<i> ㅤ
+       
+　　　　　 　 　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 	ততততততততততত 　
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/621d800a-e388-4d81-8292-3b3b1b7ccb97)
+
+ 　 　please int with me if u have jjk hyperfix
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinkissersatoru.straw.page)
+
