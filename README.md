@@ -1,9 +1,11 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　૮₍ ˃̵͈ . ˂̵͈ ₎ა
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<i>c+h always ,, mostly offtab so w2i<i> ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<i>c*h always ,, mostly offtab so w2i<i> ㅤslow resp
        
 　　　　　 　 　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　 	ততততততততততত 　
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image](https://github.com/user-attachments/assets/621d800a-e388-4d81-8292-3b3b1b7ccb97)
+
+ততততততততততত
 
  　 　please int with me if u have jjk hyperfix
 
