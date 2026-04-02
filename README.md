@@ -9,6 +9,6 @@
 
  　 　please int with me if u have jjk hyperfix
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinkissersatoru.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinsatorukisser.straw.page)
 
 ![Image](https://github.com/user-attachments/assets/8d6ab7d1-5955-4c4a-9e84-35da50c0ed74)
