@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤ　ㅤㅤㅤㅤㅤ　　![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=۶۟ৎ)
+ㅤㅤㅤㅤㅤ　ㅤㅤㅤㅤㅤ　　![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=۶۟ৎ&color=000000)
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　૮₍ ˃̵͈ . ˂̵͈ ₎ა
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<i>c*h always ,, mostly offtab so w2i<i> ⟡ slow resp
