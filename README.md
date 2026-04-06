@@ -1,5 +1,6 @@
 ㅤㅤㅤㅤㅤ　ㅤㅤㅤㅤㅤ　　![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=۶۟ৎ&color=000000)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　૮₍ ˃̵͈ . ˂̵͈ ₎ა
+
+ㅤㅤㅤㅤnote: eng is not my first lang i can make a stupid mistakes sry
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<i>c*h always ,, mostly offtab so w2i<i> ⟡ slow resp
        
