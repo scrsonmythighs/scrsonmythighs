@@ -9,7 +9,7 @@
 
 ততততততততততত
 
-        please int with me if u into in jjk
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤsign my ata and check strawpage
 
