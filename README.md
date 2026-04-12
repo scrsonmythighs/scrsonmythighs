@@ -1,15 +1,10 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sry
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc*h always ,, mostly offtab so w2i ⟡ slow resp
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc*h always . freely int . mostly offtab so w2i
 
-![Image](https://github.com/user-attachments/assets/cb583fdd-e7e7-48e6-a107-438564c315ef)
-
-
+ㅤㅤㅤㅤㅤ<img width="640" height="360" alt="Image" src="https://github.com/user-attachments/assets/e9b10c19-69c8-403e-ae05-0a326dc74189" />
 
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(˶>⩊<˶)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤ[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=۶۟ৎ&color=000000)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
