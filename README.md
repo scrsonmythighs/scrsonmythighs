@@ -9,7 +9,7 @@
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
+ㅤ[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=۶۟ৎ&color=000000)
