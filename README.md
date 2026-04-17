@@ -1,10 +1,11 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc*h always . freely int . mostly offtab so w2i
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc*h always . freely int . mostly offtab so w2i ㅤ
 
-ㅤㅤㅤㅤㅤ<img width="640" height="360" alt="Image" src="https://github.com/user-attachments/assets/e9b10c19-69c8-403e-ae05-0a326dc74189" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBMF BMF please im sweet and cool and why u dont wanna be my friend...
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+          ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ           ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤ<img width="640" height="478" alt="Image" src="https://github.com/user-attachments/assets/6ffa84bd-9910-41d3-aace-102f2750fa3b" />
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ(˶>⩊<˶)
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
