@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤc*h always . freely int . mostly offtab so w2i ㅤ
 
