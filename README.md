@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤBMF BMF please im sweet and cool and why u dont wanna be my friend...
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-          ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ           ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="640" height="478" alt="Image" src="https://github.com/user-attachments/assets/6ffa84bd-9910-41d3-aace-102f2750fa3b" />
+<img width="640" height="478" alt="Image" src="https://github.com/user-attachments/assets/6ffa84bd-9910-41d3-aace-102f2750fa3b" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
 
