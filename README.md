@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
 
 </div> <div align="center">────────────────────────────────────────────────
 
