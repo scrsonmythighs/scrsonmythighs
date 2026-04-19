@@ -1,13 +1,15 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ.ᐟㅤnote: eng is not my first lang i can make a stupid mistakes sorry
+　　　　　.ᐟㅤ**note: eng is not my first lang**　　　　　　　　　　　　　　　　　**hey there**　　૮꒰ ˶• ༝ •˶꒱ა ♡
 
-</div> <div align="center">────────────────────────────────────────────────
+</div> <div align="center"><img width="960" height="284" alt="Image" src="https://github.com/user-attachments/assets/174c3306-74c2-479c-b243-7388d59e1582" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 
-c*h always . freely int . mostly offtab so w2i ㅤ
+![Image](https://github.com/user-attachments/assets/8d6ab7d1-5955-4c4a-9e84-35da50c0ed74)
 
-ㅤㅤBMF BMF please im sweet and cool and why u dont wanna be my friend...
+　　　　**c*h always** 　　　　　　　　　**freely int** 　　　　　　　　　**mostly offtab so w2i**
 
-</div> <div align="center"><img width="640" height="478" alt="Image" src="https://github.com/user-attachments/assets/6ffa84bd-9910-41d3-aace-102f2750fa3b" />
+ꉂ(˵˃ ᗜ ˂˵)
 
-ㅤㅤ[ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
+   **BMF BMF please im sweet and cool dont u wanna be my friend...**
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
+   [ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
+
+   ![Image](https://github.com/user-attachments/assets/8d6ab7d1-5955-4c4a-9e84-35da50c0ed74)
