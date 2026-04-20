@@ -1,4 +1,4 @@
-　　　　　.ᐟㅤ**note: eng is not my first lang**　　　　　　　　　　　　　　　　　**hey there**　　૮꒰ ˶• ༝ •˶꒱ა ♡
+　　　　　.ᐟㅤ**note: eng is not my first lang**　　　　　　　　　　　　　　　　　**hey there**　　
 
 </div> <div align="center"><img width="960" height="284" alt="Image" src="https://github.com/user-attachments/assets/174c3306-74c2-479c-b243-7388d59e1582" />ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
 
