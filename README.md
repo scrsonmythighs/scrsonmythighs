@@ -10,6 +10,6 @@
 
    **BMF BMF please im sweet and cool dont u wanna be my friend...**
 
-   [ata book](https://rinrinrin.atabook.org/) ୨ৎ [straw page](https://rinnyaanya.straw.page)
+   [ata book](https://rinrinrin.atabook.org/) ୨ৎ [carrd](https://carrd.co/dashboard/3483177902062951/build) ୨ৎ [straw](https://rinnyaanya.straw.page)
 
    ![Image](https://github.com/user-attachments/assets/8d6ab7d1-5955-4c4a-9e84-35da50c0ed74)
