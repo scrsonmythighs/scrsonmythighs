@@ -2,7 +2,7 @@
 
 ![Image](https://github.com/user-attachments/assets/8d6ab7d1-5955-4c4a-9e84-35da50c0ed74)
 
-<img width="600" height="360" alt="Image" src="https://github.com/user-attachments/assets/034fa81b-ac9c-4f5b-852a-b04d971d3101" />
+<img width="600" height="307" alt="Image" src="https://github.com/user-attachments/assets/22939189-213d-482c-9ef7-a8057ee09569" />
 
  [ata book](https://rinrinrin.atabook.org/)ㅤㅤㅤㅤ ㅤㅤ[carrd.co](https://rinpaw.carrd.co/)ㅤㅤㅤㅤ ㅤㅤ[straw](https://rinnyaanya.straw.page)ㅤㅤㅤㅤ ㅤㅤ [guns.lol](https://guns.lol/scrsonmythighs)
 
