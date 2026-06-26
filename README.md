@@ -1,4 +1,4 @@
-
+thanks danya <3
 </div> <div align="center"><img width="538" height="480" alt="Image" src="https://github.com/user-attachments/assets/3016540b-87f2-4b54-8a8f-b8af9e50d389" />
 
  [<sub>ata book</sub>](https://rinrinrin.atabook.org/)ㅤㅤㅤ.ㅤ ㅤㅤ[<sub>carrd.co</sub>](https://sixeyesrin.carrd.co)ㅤㅤㅤ.ㅤ ㅤㅤ[<sub>straw</sub>](https://blindfoldrin.straw.page)ㅤㅤㅤ
