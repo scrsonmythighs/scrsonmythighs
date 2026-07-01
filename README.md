@@ -1,5 +1,9 @@
 <div id="header" align="center">
  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=D4D4D4&width=435&lines=cuddle+me+oki)](https://git.io/typing-svg)
+
+<div id="header" align="center">
+ 
 ![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=sweets&color=202225&style=plastic&base=2004)
 
 <div id="header" align="center">
