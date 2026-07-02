@@ -16,4 +16,4 @@
   <div class="message">
 <a href="https://rinrinrin.atabook.org/"><img src="https://i.postimg.cc/prCWn4p2/IMG-6521.png" alt="Pen" width="155" height="50"></a>          
         ⠀            ᛝ⠀⠀⠀ <a href="https://blindfoldrin.straw.page"><img src="https://i.postimg.cc/xCSnpnmG/IMG-6522.png" alt="Pen" width="155" height="50"></a>
-     ⠀ <br>          ⠀⠀                                                    ⸝⸝             <div id="header" align="center"><a href="https://rentry.co/babyrinn"><img src="https://i.postimg.cc/PfyTKGr0/IMG-6523.png" alt="Pen" width="155" height="50"></a>          ᛝ
+     ⠀ <br>          ⠀⠀                                                    ⸝⸝             <div id="header" align="center"><a href="https://rentry.co/rinsweettooth"><img src="https://i.postimg.cc/PfyTKGr0/IMG-6523.png" alt="Pen" width="155" height="50"></a>          ᛝ
