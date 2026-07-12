@@ -1,6 +1,6 @@
-<div id="header" align="center">
- 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=f7fbf3&width=435&lines=TV+Girl+-+It+Almost+Worked)
+ <div id="header" align="center">
+  
+![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=f7fbf3&width=435&lines=i+wont+stop+untill+that+boy+is+mine)
 
 <div id="header" align="center">
  
