@@ -8,4 +8,4 @@
 
 <img width="500" src="https://file.garden/akKbU9_l8hKnlTIX/IMG_7063.PNG"/>
 
-[<sub>ata book</sub>](https://rinrinrin.atabook.org/)        [<sub>straw</sub>](https://blindfoldrin.straw.page)          [<sub>rentry.co</sub>](https://rentry.co/rinsweettooth)
+[<sub>ata book</sub>](https://rinrinrin.atabook.org/)        [<sub>straw</sub>](https://blindfoldrin.straw.page)          [<sub>rentry.co</sub>](https://rentry.co/rinlovesatoru)
