@@ -4,15 +4,13 @@
 
 <br> <br>
 
-<img width="400" align="left" src="https://file.garden/akKbU9_l8hKnlTIX/IMG_7172.PNG" alt="image" width="405" />
+<img align="left" height="550" alt="Image" src="https://github.com/user-attachments/assets/15236b77-1127-4484-bd11-227dd375f89b" />
 
 <br> <br>
 
 <div align="center"> ㅤ </div>
 
-
-
- $\color{#d8d2c2}{\textsf{I have love and dreams too}}$  <br>
+ $\color{#4C323E}{\textsf{I have love and dreams too}}$  <br>
  
 <p align="center">
  
