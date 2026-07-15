@@ -1,3 +1,7 @@
+<div id="header" align="center">
+ 
+![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=sweets&color=a8cbe8&style=plastic&base=2004)
+
 <br> <br>
 
 <img width="400" align="left" src="https://file.garden/akKbU9_l8hKnlTIX/IMG_7172.PNG" alt="image" width="405" />
