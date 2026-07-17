@@ -10,7 +10,7 @@
 
 <div align="center"> ㅤ </div>
 
- $\color{#4C323E}{\textsf{I have love and dreams too}}$  <br>
+ $\small\color{#4C323E}{\textsf{i}}$ $\small\color{#5d374a}{\textsf{have}}$ $\small\color{#512f46}{\textsf{love}}$ $\small\color{#412538}{\textsf{and}}$ $\small\color{#381e30}{\textsf{dreams}}$ $\small\color{#2a1423}{\textsf{too}}$  <br>
  
 <p align="center">
  
