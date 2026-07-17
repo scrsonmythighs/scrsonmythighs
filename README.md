@@ -1,5 +1,9 @@
 <div id="header" align="center">
  
+ <img height="100" alt="Image" src="https://github.com/user-attachments/assets/1040b89b-71df-4eff-9491-e24b46bb8c30" />
+
+<div id="header" align="center">
+ 
 ![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=sweets&color=a8cbe8&style=plastic&base=2004)
 
 <br> <br>
