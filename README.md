@@ -1,6 +1,6 @@
 <div id="header" align="center">
  
-![](https://komarev.com/ghpvc/?username=scrsonmythighs&label᧔ෆ᧓+sweets&color=a8cbe8&style=plastic&base=2004)
+![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=᧔ෆ᧓+sweets&color=a8cbe8&style=plastic&base=2004)
 
 <br> <br>
 
