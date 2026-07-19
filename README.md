@@ -51,5 +51,5 @@
   <summary>
     <b>mine ♡</b></summary>
 
-[danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone)  [lowe](https://github.com/simurians)  
+[danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone) [vera](https://github.com/better-to-sleep) [lowe](https://github.com/simurians)  
 
