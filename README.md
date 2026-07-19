@@ -1,9 +1,5 @@
 <div id="header" align="center">
  
- <img height="100" alt="Image" src="https://github.com/user-attachments/assets/1040b89b-71df-4eff-9491-e24b46bb8c30" />
-
-<div id="header" align="center">
- 
 ![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=sweets&color=a8cbe8&style=plastic&base=2004)
 
 <br> <br>
@@ -15,7 +11,45 @@
 <div align="center"> ㅤ </div>
 
  $\small\color{#4C323E}{\textsf{i}}$ $\small\color{#5d374a}{\textsf{have}}$ $\small\color{#512f46}{\textsf{love}}$ $\small\color{#412538}{\textsf{and}}$ $\small\color{#381e30}{\textsf{dreams}}$ $\small\color{#2a1423}{\textsf{too}}$  <br>
- 
+
+<details>
+  <summary>
+    <b>links</b>
+  </summary>
+  
+  <br>
+  
+  <table>
+  <tr>
+    <td>
+      <a href="https://rinrinrin.atabook.org/">
+        <img src="https://files.catbox.moe/mffk1k.PNG" height="100" style="vertical-align: middle;">
+      </a>
+    </td>
+  </tr>
+  <tr>
+    <td>
+      <a href="https://rentry.co/rinlovesatoru">
+        <img src="https://files.catbox.moe/7c08vw.PNG" height="100" style="vertical-align: middle;">
+      </a>
+    </td>
+  </tr>
+  <tr>
+    <td>
+      <a href="https://blindfoldrin.straw.page">
+        <img src="https://files.catbox.moe/0ypwfy.PNG" height="100" style="vertical-align: middle;">
+      </a>
+    </td>
+  </tr>
+</table>
+  
+</details>
+
 <p align="center">
- 
-[<sub>ata book</sub>](https://rinrinrin.atabook.org/)                [<sub>straw</sub>](https://blindfoldrin.straw.page)          [<sub>rentry.co</sub>](https://rentry.co/rinlovesatoru)
+ <br>
+  <details>
+  <summary>
+    <b>mine ♡</b></summary>
+
+[danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone)  [lowe](https://github.com/simurians)  
+
