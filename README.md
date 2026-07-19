@@ -14,37 +14,19 @@
 
 <details>
   <summary>
-    <b>links</b>
+    <b>links .ᐟ</b>
   </summary>
   
   <br>
-  
-  <table>
-  <tr>
-    <td>
       <a href="https://rinrinrin.atabook.org/">
         <img src="https://files.catbox.moe/mffk1k.PNG" height="100" style="vertical-align: middle;">
-      </a>
-    </td>
-  </tr>
-  <tr>
-    <td>
       <a href="https://rentry.co/rinlovesatoru">
         <img src="https://files.catbox.moe/7c08vw.PNG" height="100" style="vertical-align: middle;">
-      </a>
-    </td>
-  </tr>
-  <tr>
-    <td>
       <a href="https://blindfoldrin.straw.page">
         <img src="https://files.catbox.moe/0ypwfy.PNG" height="100" style="vertical-align: middle;">
-      </a>
-    </td>
-  </tr>
-</table>
+
   
 </details>
-
 <p align="center">
  <br>
   <details>
