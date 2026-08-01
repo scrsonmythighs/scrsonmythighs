@@ -18,7 +18,7 @@
         <td style="vertical-align: top;">
 <img height="250" alt="Image" src="https://github.com/user-attachments/assets/60089ae2-906e-441e-948c-15f6b3314de0" />
 <td style="vertical-align: top;">
-‘　cudcomf    ୧　 ۠　.　read rentry byi<br>
+‘　cudcomf    ୧　 ۠　.　read rentry byi<br> GUYS click on these cinnamonrolls for links
 </details>
 <p align="center">
  <br>
