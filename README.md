@@ -1,37 +1,45 @@
 <div id="header" align="center">
  
-![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=᧔ෆ᧓+sweets&color=a8cbe8&style=plastic&base=2004)
+ <img  width="600" alt="Image" src="https://github.com/user-attachments/assets/afbcc4d0-2121-4299-bdc8-09e6ec2f65f4" />
 
-<br> <br>
+<div id="header" align="center">
+ 
+ $\small\color{#1e1924}{\textsf{𝐓𝐇𝐑𝐎𝐔𝐆𝐇𝐎𝐔𝐓}}$ $\small\color{#2b2335}{\textsf{𝐇𝐄𝐀𝐕𝐄𝐍}}$ $\small\color{#362c42}{\textsf{𝐀𝐍𝐃}}$ $\small\color{#42384e}{\textsf{𝐄𝐀𝐑𝐓𝐇}}$ $\small\color{#4f455b}{\textsf{𝐈 𝐀𝐋𝐎𝐍𝐄}}$ $\small\color{#655b71}{\textsf{𝐀𝐌 𝐓𝐇𝐄}}$ $\small\color{#786f82}{\textsf{𝐇𝐎𝐍𝐎𝐑𝐄𝐃}}$ $\small\color{#817b88}{\textsf{𝐎𝐍𝐄.}}$ <br>
 
-<img align="left" height="550" alt="Image" src="https://github.com/user-attachments/assets/15236b77-1127-4484-bd11-227dd375f89b" />
+<div id="header" align="center">
+ 
+ ![](https://komarev.com/ghpvc/?username=scrsonmythighs&label=᧔ෆ᧓+sweets&color=38333e&style=plastic&base=2004)
 
-<br> <br>
-
-<div align="center"> ㅤ </div>
-
- $\small\color{#4C323E}{\textsf{i}}$ $\small\color{#5d374a}{\textsf{have}}$ $\small\color{#512f46}{\textsf{love}}$ $\small\color{#412538}{\textsf{and}}$ $\small\color{#381e30}{\textsf{dreams}}$ $\small\color{#2a1423}{\textsf{too}}$  <br>
-
-<details>
-  <summary>
-    <b>links .ᐟ</b>
-  </summary>
-  
-  <br>
-      <a href="https://rinrinrin.atabook.org/">
-        <img src="https://files.catbox.moe/mffk1k.PNG" height="100" style="vertical-align: middle;">
-      <a href="https://rentry.co/rinlovessatoru">
-        <img src="https://files.catbox.moe/7c08vw.PNG" height="100" style="vertical-align: middle;">
-      <a href="https://blindfoldrin.straw.page">
-        <img src="https://files.catbox.moe/0ypwfy.PNG" height="100" style="vertical-align: middle;">
-
-  
+<div id="header" align="center">
+ 
+ <div class="table-container">
+    <table>
+        <tr>
+        <td style="vertical-align: top;">
+<img height="250" alt="Image" src="https://github.com/user-attachments/assets/60089ae2-906e-441e-948c-15f6b3314de0" />
+<td style="vertical-align: top;">
+‘　cudcomf    ୧　 ۠　.　read rentry byi<br>
 </details>
 <p align="center">
  <br>
   <details>
   <summary>
-    <b>mine ♡</b></summary>
+   <div id="header" align="center">⠀ིㅤ‿࿔　 <b>hey buddies</b></summary>
 
-[danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone) [vera](https://github.com/better-to-sleep) [lowe](https://github.com/simurians) + all green names 
+[danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone) [vera](https://github.com/better-to-sleep) [lowe](https://github.com/simurians)
+    </table>
+<img width="550" height="7" alt="Image" src="https://github.com/user-attachments/assets/7124fc86-2ecc-46ab-b82e-52977040e7e6" />
 
+<img  height="250" align="left" alt="Image" src="https://github.com/user-attachments/assets/f12d1fcb-c4a0-4f05-803f-e44beae3cf48" />
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Archivo+Black&pause=1000&color=4F455B&width=435&lines=sign+my+ata+book+~;i+love+satoru+btw)](https://git.io/typing-svg)
+
+ <a href="https://rinrinrin.atabook.org/">
+ <img height="190" alt="Image" src="https://github.com/user-attachments/assets/a3070f1f-dc2b-4c73-befe-5545d56d04b2" />
+   <a href="https://blindfoldrin.straw.page">
+<img height="190" alt="Image" src="https://github.com/user-attachments/assets/dce2e674-3199-4279-8703-3ca34e57432a" />
+     <a href="https://rentry.co/rinlovessatoru">
+<img height="230" alt="Image" src="https://github.com/user-attachments/assets/df7929ce-244f-4c71-bb6a-6f521610f32d" />
+
+
+<img width="600" alt="Image" src="https://github.com/user-attachments/assets/d83cf093-3de4-4298-9d95-14e45384c23c" />
