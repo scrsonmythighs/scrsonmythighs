@@ -38,8 +38,6 @@
  <img height="190" alt="Image" src="https://github.com/user-attachments/assets/a3070f1f-dc2b-4c73-befe-5545d56d04b2" />
    <a href="https://blindfoldrin.straw.page">
 <img height="190" alt="Image" src="https://github.com/user-attachments/assets/dce2e674-3199-4279-8703-3ca34e57432a" />
-     <a href="https://rentry.co/rinlovessatoru">
-<img height="200" alt="Image" src="https://github.com/user-attachments/assets/df7929ce-244f-4c71-bb6a-6f521610f32d" />
 
 
 <img width="600" alt="Image" src="https://github.com/user-attachments/assets/d83cf093-3de4-4298-9d95-14e45384c23c" />
