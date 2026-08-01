@@ -18,7 +18,7 @@
         <td style="vertical-align: top;">
 <img height="250" alt="Image" src="https://github.com/user-attachments/assets/60089ae2-906e-441e-948c-15f6b3314de0" />
 <td style="vertical-align: top;">
-‘　cudcomf    ୧　 ۠　.　read rentry byi<br> GUYS click on these cinnamonrolls for links
+‘　cudcomf    ୧　 ۠　.　read <a href="https://rentry.co/rinsatorulove">rentry</a> byi<br>  
 </details>
 <p align="center">
  <br>
@@ -35,9 +35,9 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Archivo+Black&pause=1000&color=4F455B&width=435&lines=sign+my+ata+book+~;i+love+satoru+btw)](https://git.io/typing-svg)
 
  <a href="https://rinrinrin.atabook.org/">
- <img height="190" alt="Image" src="https://github.com/user-attachments/assets/a3070f1f-dc2b-4c73-befe-5545d56d04b2" />
+ <img height="190" alt="Image" src="https://github.com/user-attachments/assets/a3070f1f-dc2b-4c73-befe-5545d56d04b2" /> ata book
    <a href="https://blindfoldrin.straw.page">
-<img height="190" alt="Image" src="https://github.com/user-attachments/assets/dce2e674-3199-4279-8703-3ca34e57432a" />
+<img height="190" alt="Image" src="https://github.com/user-attachments/assets/dce2e674-3199-4279-8703-3ca34e57432a" /> straw
 
 
 <img width="600" alt="Image" src="https://github.com/user-attachments/assets/d83cf093-3de4-4298-9d95-14e45384c23c" />
