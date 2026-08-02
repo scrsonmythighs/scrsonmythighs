@@ -22,7 +22,7 @@
         <td style="vertical-align: top;">
 <img height="250" alt="Image" src="https://github.com/user-attachments/assets/60089ae2-906e-441e-948c-15f6b3314de0" />
 <td style="vertical-align: top;">
-‘　cudcomf    ୧　 ۠　.　read <a href="https://rentry.co/rinsatorulove">rentry</a> byi<br>  
+‘　cudcomf    ୧　 ۠　.　read <a href="https://rentry.co/satorurin">rentry</a> byi<br>  
 </details>
 <p align="center">
  <br>
