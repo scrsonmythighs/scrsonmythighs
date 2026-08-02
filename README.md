@@ -2,6 +2,10 @@
  
  <img  width="600" alt="Image" src="https://github.com/user-attachments/assets/afbcc4d0-2121-4299-bdc8-09e6ec2f65f4" />
 
+♡ <br>[<sub>@pt-hall-of-media</sub>](https://github.com/pt-hall-of-media) [<sub>@pt-fashion</sub>](https://github.com/pt-fashion) [<sub>@pt-of-awesomeness</sub>](https://github.com/pt-of-awesomeness) [<sub>@pt-nominations</sub>](https://github.com/pt-nominations) [<sub>@ponytownyumeshippers</sub>](https://github.com/ponytownyumeshippers)<br>
+ 
+
+
 <div id="header" align="center">
  
  $\small\color{#1e1924}{\textsf{𝐓𝐇𝐑𝐎𝐔𝐆𝐇𝐎𝐔𝐓}}$ $\small\color{#2b2335}{\textsf{𝐇𝐄𝐀𝐕𝐄𝐍}}$ $\small\color{#362c42}{\textsf{𝐀𝐍𝐃}}$ $\small\color{#42384e}{\textsf{𝐄𝐀𝐑𝐓𝐇}}$ $\small\color{#4f455b}{\textsf{𝐈 𝐀𝐋𝐎𝐍𝐄}}$ $\small\color{#655b71}{\textsf{𝐀𝐌 𝐓𝐇𝐄}}$ $\small\color{#786f82}{\textsf{𝐇𝐎𝐍𝐎𝐑𝐄𝐃}}$ $\small\color{#817b88}{\textsf{𝐎𝐍𝐄.}}$ <br>
