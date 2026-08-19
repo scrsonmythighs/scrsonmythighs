@@ -17,13 +17,13 @@ $\small\color{#75a3c6}{\textsf{SPIDER -}}$ $\small\color{#b72020}{\textsf{MAN’
 me rin . me gojo gf . me gojo kisser .<br>  
 </details>
 <p align="center">
- <br>
- <details>
-<summary>♡ friends</summary>
-  
-  <br>
 
-[danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone) [vera](https://github.com/better-to-sleep) [lowe](https://github.com/simurians) [soap](https://github.com/shokosclinic)   
+<details>
+  <summary>friends ♡</summary> 
+  
+  [danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone) [vera](https://github.com/better-to-sleep) [lowe](https://github.com/simurians) [soap](https://github.com/shokosclinic)
+</details>
+
  </table>
 <img height="39" alt="Image" src="https://github.com/user-attachments/assets/a1497b7b-06d3-44ef-8e4a-5fa1f4ae8898" />
    <div class="table-container">
