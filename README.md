@@ -19,7 +19,7 @@ hi im rin and i love satoru and satoru love me
 <details>
   <summary>friends ♡</summary> 
   
-  [danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone) [vera](https://github.com/better-to-sleep) [lowe](https://github.com/simurians) [soap](https://github.com/shokosclinic) [aoshi](@ash-dies-alone)
+  [danya](https://github.com/1buprofens)  [oresha](https://github.com/smokebomb)  [void](https://github.com/horroryaoi)  [jes](https://github.com/pur3lies)  [rina](https://github.com/desirwagone) [vera](https://github.com/better-to-sleep) [lowe](https://github.com/simurians) [soap](https://github.com/shokosclinic) [aoshi](https://github.com/ash-dies-alone)
 </details>
 
  [<sub>ata book</sub>](https://rinrinrin.atabook.org/)  [<sub>straw page</sub>](https://blindfoldrin.straw.page)
