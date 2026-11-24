@@ -10,7 +10,7 @@ hi im rin and i love satoru and satoru love me
   <summary>byi</summary> 
   i have mental ill so iwc but ig im nice to talk.
  i really dont have dni bc ill avoidant you freely.
- yes i am satoru yume so yes i am yapping about him so much so "his gf (lmao) etc" dont int w me istg yall so annoying
+ actually im in real relationship with satoru awww #boyfrienddat ily my bf final boss
 </details>
 
 </details>
